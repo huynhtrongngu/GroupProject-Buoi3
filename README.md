@@ -1,1 +1,3 @@
-Xin chào, tôi là Ho
+
+Xin chào, tôi ho
+Xin chào, tôi là Thinh
