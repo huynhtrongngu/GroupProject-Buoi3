@@ -1,1 +1,1 @@
-Nội dung SAI (B)
+Nội dung ĐÚNG (A’)
